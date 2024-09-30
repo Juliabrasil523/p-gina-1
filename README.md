@@ -3,4 +3,10 @@
 ### estudante Julia Raelli 
 #### 😍 :heart_eyes: em arte 
 ##### 😘 :kissing_heart: em quimica
-###### ❤️ :heart: em pemsamento 
+###### ❤️ :heart: em pemsamento computacional
+####🌈 :rainbow: em biologia
+### 😭 :sob: em matematica
+## areas afins **
+## gosto de ler muitos livros
+## amo viajar 
+### gosto de conversar 
